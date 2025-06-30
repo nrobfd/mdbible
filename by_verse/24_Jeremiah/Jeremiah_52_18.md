@@ -1,0 +1,3 @@
+# Jeremiah 52:18
+
+And they took away the pots and the shovels and the snuffers and the basins and the dishes for incense and all the vessels of bronze used in the temple service;

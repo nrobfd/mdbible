@@ -1,0 +1,3 @@
+# Hebrews 11:8
+
+By faith Abraham obeyed when he was called to go out to a place that he was to receive as an inheritance. And he went out, not knowing where he was going.

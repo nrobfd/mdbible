@@ -1,0 +1,3 @@
+# Matthew 22:43
+
+He said to them, How is it then that David, in the Spirit, calls him Lord, saying,

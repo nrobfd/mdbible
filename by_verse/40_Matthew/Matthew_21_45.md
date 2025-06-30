@@ -1,0 +1,3 @@
+# Matthew 21:45
+
+When the chief priests and the Pharisees heard his parables, they perceived that he was speaking about them.

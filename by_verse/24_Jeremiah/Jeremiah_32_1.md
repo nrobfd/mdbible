@@ -1,0 +1,3 @@
+# Jeremiah 32:1
+
+The word that came to Jeremiah from the Lord in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadnezzar.

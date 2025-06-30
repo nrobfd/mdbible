@@ -1,0 +1,3 @@
+# I Corinthians 11:7
+
+For a man ought not to cover his head, since he is the image and glory of God, but woman is the glory of man.

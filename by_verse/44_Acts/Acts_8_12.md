@@ -1,0 +1,3 @@
+# Acts 8:12
+
+But when they believed Philip as he preached good news about the kingdom of God and the name of Jesus Christ, they were baptized, both men and women.

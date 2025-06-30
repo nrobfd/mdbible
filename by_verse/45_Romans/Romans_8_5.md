@@ -1,0 +1,3 @@
+# Romans 8:5
+
+For those who live according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit set their minds on the things of the Spirit.

@@ -1,0 +1,3 @@
+# II Kings 16:20
+
+And Ahaz slept with his fathers and was buried with his fathers in the city of David, and Hezekiah his son reigned in his place.

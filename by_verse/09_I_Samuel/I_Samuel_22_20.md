@@ -1,0 +1,3 @@
+# I Samuel 22:20
+
+But one of the sons of Ahimelech the son of Ahitub, named Abiathar, escaped and fled after David.

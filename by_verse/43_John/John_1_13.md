@@ -1,0 +1,3 @@
+# John 1:13
+
+who were born, not of blood nor of the will of the flesh nor of the will of man, but of God.

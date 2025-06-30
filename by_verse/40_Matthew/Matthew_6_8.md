@@ -1,0 +1,3 @@
+# Matthew 6:8
+
+Do not be like them, for your Father knows what you need before you ask him.

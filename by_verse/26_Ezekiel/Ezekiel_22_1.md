@@ -1,0 +1,3 @@
+# Ezekiel 22:1
+
+And the word of the Lord came to me, saying,

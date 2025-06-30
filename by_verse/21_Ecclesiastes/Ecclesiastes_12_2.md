@@ -1,0 +1,3 @@
+# Ecclesiastes 12:2
+
+before the sun and the light and the moon and the stars are darkened and the clouds return after the rain,

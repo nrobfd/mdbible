@@ -1,0 +1,3 @@
+# Acts 8:38
+
+And he commanded the chariot to stop, and they both went down into the water, Philip and the eunuch, and he baptized him.

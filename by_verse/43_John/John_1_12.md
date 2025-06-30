@@ -1,0 +1,3 @@
+# John 1:12
+
+But to all who did receive him, who believed in his name, he gave the right to become children of God,

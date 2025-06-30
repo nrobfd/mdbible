@@ -1,0 +1,3 @@
+# Matthew 1:18
+
+Now the birth of Jesus Christ took place in this way. When his mother Mary had been betrothed to Joseph, before they came together she was found to be with child from the Holy Spirit.

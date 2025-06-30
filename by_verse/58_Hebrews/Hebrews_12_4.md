@@ -1,0 +1,3 @@
+# Hebrews 12:4
+
+In your struggle against sin you have not yet resisted to the point of shedding your blood.

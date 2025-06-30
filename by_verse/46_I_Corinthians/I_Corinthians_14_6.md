@@ -1,0 +1,3 @@
+# I Corinthians 14:6
+
+Now, brothers, if I come to you speaking in tongues, how will I benefit you unless I bring you some revelation or knowledge or prophecy or teaching?

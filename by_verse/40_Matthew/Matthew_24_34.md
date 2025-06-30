@@ -1,0 +1,3 @@
+# Matthew 24:34
+
+Truly, I say to you, this generation will not pass away until all these things take place.
